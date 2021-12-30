@@ -1,0 +1,2 @@
+# Data
+Trang website cá nhân Phạm Văn Sơn là nơi cung cấp kiến thức về Digital Marketing - kinh nghiệm công việc  và học bổng. Giúp cung cấp các bạn mong muốn gia nhập nghề Digital Marketing một cách dễ dàng. Cũng như có định hướng sớm hơn trong quá trình học tập website: https://phamvanson.xyz/  Email: phamson.d17ptit@gmail.com hoặc phamvanson0711@gmail.com Hotline: (+84) 362 506 773 #phamvanson #phamsonmarketer #Digitalmarketing #SEO  
